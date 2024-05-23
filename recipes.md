@@ -113,3 +113,28 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### The BEST Cheesecake Recipe
+
+Ingredients
+Graham Cracker Crust¹
+- 1 ½ cups graham cracker crumbs (170g)
+- 2 Tablespoons sugar
+- 1 Tablespoon brown sugar (can substitute white)
+- 7 Tablespoons butter melted
+Cheesecake
+- 32 oz cream cheese² softened to room temperature (910g)
+- 1 cup sugar (200g)
+- ⅔ cups sour cream (160g)
+- 1 ½ teaspoons vanilla extract
+- ⅛ teaspoon salt
+- 4 large eggs room temperature, lightly beate
+
+Instructions:
+1. Preheat oven to 325F (160C).
+2. Prepare Graham Cracker crust first by combining graham cracker crumbs, sugar, and brown sugar, and stirring well. Add melted butter and use a fork to combine ingredients well.
+3. 1 ½ cups graham cracker crumbs,2 Tablespoons sugar,1 Tablespoon brown sugar,7 Tablespoons butter
+4. Pour crumbs into a 9” Springform pan and press firmly into the bottom and up the sides of your pan. Set aside.
+5. In the bowl of a stand mixer or in a large bowl (using a hand mixer) add cream cheese and stir until smooth and creamy (don’t over-beat or you’ll incorporate too much air).
+32 oz cream cheese²
+6. Transfer to the center rack of your oven and bake on 325F (160C) for 50-60 minutes (or longer as needed, see note 3). Edges will likely have slightly puffed and may have just begun to turn a light golden brown and the center should spring back to the touch but will still be Jello-jiggly. Don't over-bake or the texture will suffer, which means we all suffer.
